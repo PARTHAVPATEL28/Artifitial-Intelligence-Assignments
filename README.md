@@ -1,0 +1,1 @@
+# Artifitial-Intelligence-Assignments
